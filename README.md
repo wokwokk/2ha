@@ -5,4 +5,4 @@
 
 # 魔道祖师全套系列点击以下链接进入店铺购买
 
-点这里→→→→https://www.juzifaka.com/details/D5B30E79
+点这里→→→→https://www.ibaoli.org/details/968B9F58
